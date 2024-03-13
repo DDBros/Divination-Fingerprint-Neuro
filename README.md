@@ -1,1 +1,0 @@
-# Divination-Fingerprint-Neuro
